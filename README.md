@@ -1,2 +1,1 @@
-Nama : Nashwa Putri Laisya
-NIM : 122140180
+Nashwa Putri Laisya - 122140180
